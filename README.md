@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...marketing,data,AI,sales
 - 🌱 I’m currently learning ...automation
 - 💞️ I’m looking to collaborate on ...any thing python, wordpress, AI related - so i could learn new things.
-- 📫 How to reach me ...send a mail to jasperdavid13@gmail.com or jasper@advertmasters.online
+- 📫 How to reach me ...send a mail to info@contactjasper.com
 - 😄 Pronouns: ...he/hee
 - ⚡ Fun fact: ... fun facts are facts that can be fun to know!!
 
